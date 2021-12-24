@@ -1,0 +1,4 @@
+- 👋 Hi there, my name's Riley.
+- 👀 I’m interested in all forms of tech, particularly game development or anything coding related.
+- 🌱 I’m currently learning a few certifications for networking.
+- 📫 You can reach me on discord, Fatul#4869

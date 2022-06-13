@@ -4,4 +4,5 @@
 
 - 📫
 If you're here from a job posting, feel free to call my number or shoot me an email!
+
 If not, You can reach me on discord for personal projects or inquiries at: Fatul#4869
